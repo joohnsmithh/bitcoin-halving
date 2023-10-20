@@ -2,3 +2,4 @@
 we are in september now
 we expect halving in may 2024
 just six months away
+hurray
